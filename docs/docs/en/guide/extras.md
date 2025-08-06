@@ -1,3 +1,0 @@
-# 📚 Further reading
-
-【TODO】
